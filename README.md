@@ -7,3 +7,4 @@ www.instagram.com
 www.hdtoday.tv
 www.roblox.com
 www.discord.com
+www.chatgpt.com
